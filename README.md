@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Azmathzahask
-- 👀 I’m interested in space and technology
+- 👀 I’m interested in AI & ML
 - 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on hackathons and projects
+- 💪🏻 I’m eager and always curious to learn new stuff
 - 📫 How to reach me: www.linkedin.com/in/azmathzahashaik
 - 😄 Pronouns: she/her
 
